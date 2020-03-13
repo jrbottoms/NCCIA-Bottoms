@@ -2,3 +2,11 @@
  to play at nccia
 I like it is Viernes
 <h1>colors</h1>
+
+TMNKRNJMUKM
+Y, T8KO8MKI8]
+UYT9P.L8,UKUM
+
+
+
+G ,F7R EMK7YJ
